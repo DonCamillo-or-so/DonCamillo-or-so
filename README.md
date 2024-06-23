@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @DonCamillo-or-so
+- 👀 I’m interested in html. Maybe Java or Phython in the Future
+- 🌱 I’m currently learning Website programming
+- 💞️ I’m looking to collaborate on nothing
+- ⚡ Fun fact: Im a boy and like girls
